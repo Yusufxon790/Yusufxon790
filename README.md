@@ -59,4 +59,4 @@ Currently a **3rd-year IT-Business student at Ajou University in Tashkent**, I f
 - 🌐 Portfolio: *(coming soon...)*  
 
 ---
-⭐ From [MuhammadYusuf](https://github.com/MuhammadYusuf)
+⭐ From [MuhammadYusuf](https://github.com/Yusufxon790)
